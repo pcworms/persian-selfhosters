@@ -8,3 +8,7 @@
 ### بیگ‌بلو‌باتن
 
  - [شاتل](https://engage.shatel.com/engage/)
+
+### جیتسی
+
+ - [وییز](https://meet.wiiz.ir/)
